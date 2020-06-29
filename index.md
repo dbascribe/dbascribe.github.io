@@ -14,5 +14,3 @@ to be continued
 As NASA said:
 
 > Bring him home
-
-<img src="https://www.imdb.com/title/tt3659388"/>
